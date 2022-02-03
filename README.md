@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate in recruiting developers to work with us.
 - 📫 How to reach me: www.linkedin.com/in/maría-josé-salazar
 - 👅 I speak English and Spanish
+- 💬 Ask me  about how to get better job offers
 
 
 <!---
